@@ -1,1 +1,1 @@
-# vostrikovaOlga.github.io
+# VostrikovaOlga.github.io
